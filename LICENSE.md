@@ -1,4 +1,4 @@
-#  
+#  Avanzado escape tsunami for brainrots script es el mejor escape tsunami for brainrots script con ESP y sin tiempo de espera. Seguro, confiable y optimizado para el máximo
 
 
 
